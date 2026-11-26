@@ -1,2 +1,0 @@
-# samfelagsfreathi-verkefni
-verkefni
